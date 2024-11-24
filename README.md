@@ -1,3 +1,3 @@
 # 我的学术主页
 
-**My howepage:** http://minjiaqi.com/
+**My howepage:** http://minjiaqi.cn/
